@@ -1,1 +1,1 @@
-# Document-mc-perpisahan
+di baca jangan di hapal
